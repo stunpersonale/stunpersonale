@@ -6,4 +6,4 @@
 - I'm Italian. 🇮🇹͜ (ᵔ ̮ ᵔ)›
 - I know **Italian**, **English** and a bit of **French**. σ(￣、￣〃)
 - I go by **he/they** pronouns. (=ω=)
-- If you need to speak to me **privately**, reach out on **Discord <sup>(stunpersonale)</sup>** (^_-)≡☆
+- If you need to speak to me **privately**, reach out on **Discord <sup>(._stun)</sup>** (^_-)≡☆
